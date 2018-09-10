@@ -1,0 +1,1 @@
+Pluto ist der größte und zweitmassivste bekannte Zwergplanet und das am längsten bekannte Objekt des Kuipergürtels. Er ist nach dem römischen Gott der Unterwelt benannt. Nach dem Zwergplaneten wiederum wurden die neuen Klassen der Plutoiden und der Plutinos benannt.
